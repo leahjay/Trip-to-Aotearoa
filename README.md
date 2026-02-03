@@ -1,5 +1,7 @@
-# Trip-to-Aotearoa
+# LJG
 Photos, drawings, words, etc.
 
-Starting October 2025 - ending tbd 
-
+Trip To Aotearoa
+Last Night At Delta Of Venus
+Bike Trip !
+Drawings
